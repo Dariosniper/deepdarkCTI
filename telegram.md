@@ -366,3 +366,4 @@
 |https://t.me/GhostSecS|ONLINE|GhostSec Service|
 |https://t.me/CyberCatChat|ONLINE|Cyber Cat|
 |https://t.me/xGodzillAxChat|ONLINE|Godzilla Botnet chat|
+https://t.me/LummaC2Stealer |ONLINE| LummaC2 InfoStealer|
