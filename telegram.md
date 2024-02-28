@@ -78,3 +78,24 @@ https://t.me/datamuseum| Data Leaks
 https://t.me/Kristina_Pass_RF| Data Leaks
 https://t.me/LeakedSource| Data Leaks
 https://t.me/exploit_db_com| Exploits
+https://t.me/goblins_gang 
+https://t.me/base_brutesu
+https://t.me/boosty66brvte
+https://t.me/bugatti_cloud
+https://t.me/cbanke
+https://t.me/cbanke_market
+https://t.me/CrackerConfigs
+https://t.me/cpartisans
+https://t.me/crackcodes
+https://t.me/databreach
+https://t.me/ddosserviceroot
+https://t.me/fr33d4t4
+https://t.me/joker_rebom
+https://t.me/leakdataprivate
+https://t.me/LearnExploit
+https://t.me/Log_Market_Place
+https://t.me/maillacces
+https://t.me/proxy_bar
+https://t.me/qZann
+https://t.me/TORLINKSDARKNETSHOP | Shop Darkweb
+https://t.me/windmarketo
